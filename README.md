@@ -1,0 +1,17 @@
+### Hi there 👋
+
+<!--
+**ammar6306/ammar6306** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ..SA world as a moderator
+- 🌱 I’m currently learning ...BHU india
+- 👯 I’m looking to collaborate on ...moderater, collab manager
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about ...
+- 📫 How to reach me: ...on bio twitter link
+
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->
