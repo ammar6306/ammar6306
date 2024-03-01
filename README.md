@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...on bio twitter link
 
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: best
 -->
