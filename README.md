@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ..SA world as a moderator
 - 🌱 I’m currently learning ...BHU india
-- 👯 I’m looking to collaborate on ...moderater, collab manager
+- 👯 I’m looking to collaborate on ...moderater, collab manager transleter
 - 🤔 I’m looking for help with 
 - 💬 Ask me about airdrop
 - 📫 How to reach me: ...on bio twitter link
