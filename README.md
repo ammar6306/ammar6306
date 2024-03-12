@@ -12,6 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about airdrop
 - 📫 How to reach me: ...on bio twitter link in bio
 
-- 😄 Pronouns: ...
-- ⚡ Fun fact: best
+hdhgjhf- ⚡ Fun fact: best
 --
