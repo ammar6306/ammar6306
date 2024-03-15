@@ -1,4 +1,4 @@
-ggHi there 👋
+Hi there 👋
 i am here
 <!--
 **ammar6306/ammar6306** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
