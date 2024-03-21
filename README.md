@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with 
 - 💬 Ask me about airdrop
 - 📫 How to reach me: ...on bio twitter link in bio
-- ⚡ Fun fact: best
+- ⚡ Fun fact: bestfreind
