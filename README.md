@@ -13,3 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...on bio twitter link in bio
 - ⚡ Fun fact: bestfreind
 mnmn
+the mine
