@@ -14,4 +14,3 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: bestfreind
 mnmn
 the mine
-j
